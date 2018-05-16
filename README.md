@@ -1,1 +1,21 @@
 # s8888
+http://www.12mase.com
+http://www.123vvy.com
+http://www.123399.net
+http://www.123811.net
+http://www.123212.net
+http://www.123211.net
+http://www.123119.net
+http://www.11yynn.com
+http://www.hkdeke.com
+http://www.seezai.com
+http://www.hi1987.com
+http://www.secses.com
+http://www.btpxxx.com
+http://www.sckcks.com
+http://www.vwdidi.com
+http://www.vv1311.com
+http://www.vpan01.com
+http://www.vooapp.com
+http://www.vnvn11.com
+http://www.bt6699.com
